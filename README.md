@@ -1,6 +1,15 @@
 欢迎访问我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://www.openstreetmap.org/user/venghk](https://www.openstreetmap.org/user/venghk)
+- [https://www.openstreetmap.org/user/vingkim](https://www.openstreetmap.org/user/vingkim)
+- [https://profile.hatena.ne.jp/venghk/](https://profile.hatena.ne.jp/venghk/)
+- [https://b.hatena.ne.jp/venghk/](https://b.hatena.ne.jp/venghk/)
+- [https://privatter.net/u/kimvingcs](https://privatter.net/u/kimvingcs)
+- [https://allmylinks.com/penghy](https://allmylinks.com/penghy)
+- [https://fzbg01.wixsite.com/efnkimssc/post/breakpoints](https://fzbg01.wixsite.com/efnkimssc/post/breakpoints)
+- [https://qiita.com/kimcmsgt/items/c21364ee841f625823ab](https://qiita.com/kimcmsgt/items/c21364ee841f625823ab)
+- [https://qiita.com/kimcmsgt](https://qiita.com/kimcmsgt)
 - [https://podcasters.spotify.com/pod/show/kakalike](https://podcasters.spotify.com/pod/show/kakalike)
 - [https://podcasters.spotify.com/pod/show/zonewesley](https://podcasters.spotify.com/pod/show/zonewesley)
 - [https://code.datasciencedojo.com/seonk0001](https://code.datasciencedojo.com/seonk0001)
