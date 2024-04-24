@@ -1,6 +1,7 @@
 欢迎访问我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://community.sw.siemens.com/s/feed/0D5Vb000005lp5vKAA](https://community.sw.siemens.com/s/feed/0D5Vb000005lp5vKAA)
 - [https://www.reverbnation.com/venghk](https://www.reverbnation.com/venghk)
 - [https://public.tableau.com/app/profile/venghkhuang/](https://public.tableau.com/app/profile/venghkhuang/)
 - [https://www.openstreetmap.org/user/venghk](https://www.openstreetmap.org/user/venghk)
