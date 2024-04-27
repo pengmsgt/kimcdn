@@ -1,6 +1,9 @@
 欢迎访问我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://scholar.google.com.vn/citations?view_op=list_works&hl=en&user=mElX1akAAAAJ](https://scholar.google.com.vn/citations?view_op=list_works&hl=en&user=mElX1akAAAAJ)
+- [https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/2209320](https://techcommunity.microsoft.com/t5/user/viewprofilepage/user-id/2209320)
+- [https://ameblo.jp/bright8199/entry-12848021444.html](https://ameblo.jp/bright8199/entry-12848021444.html)
 - [https://forum.ixbt.com/users.cgi?id=info:%3E1830674](https://forum.ixbt.com/users.cgi?id=info:%3E1830674)
 - [https://techhub.social/@venghk](https://techhub.social/@venghk)
 - [https://hachyderm.io/@vengpeng](https://hachyderm.io/@vengpeng)
