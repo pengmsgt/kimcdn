@@ -1,6 +1,7 @@
 欢迎访问我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://www.pinterest.ph/gzyukfgbam/](https://www.pinterest.ph/gzyukfgbam/)
 - [https://www.pinterest.ph/zoruthm/](https://www.pinterest.ph/zoruthm/)
 - [开云体育](https://zuoyejishi.com/)
 - [https://www.pinterest.ph/jingchanhua/](https://www.pinterest.ph/jingchanhua/)
