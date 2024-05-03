@@ -1,6 +1,12 @@
 欢迎访问我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://it.pinterest.com/pivxi01/](https://it.pinterest.com/pivxi01/)
+- [https://mx.pinterest.com/pivxi01/](https://mx.pinterest.com/pivxi01/)
+- [https://nz.pinterest.com/pivxi01/](https://nz.pinterest.com/pivxi01/)
+- [https://pt.pinterest.com/pivxi01/](https://pt.pinterest.com/pivxi01/)
+- [https://se.pinterest.com/pivxi01/](https://se.pinterest.com/pivxi01/)
+- [https://yaboy1.bandcamp.com/album/yabojwty](https://yaboy1.bandcamp.com/album/yabojwty)
 - [https://imgur.com/user/solwznoan/about](https://imgur.com/user/solwznoan/about)
 - [https://disqus.com/by/solwznoan/about/](https://disqus.com/by/solwznoan/about/)
 - [https://vengkuj.amebaownd.com/](https://vengkuj.amebaownd.com/)
