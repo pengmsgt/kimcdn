@@ -1,6 +1,11 @@
 欢迎访问我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
+- [https://yabogg.quora.com/about](https://yabogg.quora.com/about)
+- [https://gitlab.com/-/snippets/3706991](https://gitlab.com/-/snippets/3706991)
+- [https://git.qoto.org/-/snippets/8529](https://git.qoto.org/-/snippets/8529)
+- [https://babia.to/threads/mercury-gambling-casino-affiliate-wordpress-theme-news-reviews.21372/page-5](https://babia.to/threads/mercury-gambling-casino-affiliate-wordpress-theme-news-reviews.21372/page-5)
+- [https://gitlab.com/thorchain/thornode/-/issues/1010](https://gitlab.com/thorchain/thornode/-/issues/1010)
 - [https://git.qoto.org/yaboggs](https://git.qoto.org/yaboggs)
 - [https://it.pinterest.com/pivxi01/](https://it.pinterest.com/pivxi01/)
 - [https://mx.pinterest.com/pivxi01/](https://mx.pinterest.com/pivxi01/)
