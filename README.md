@@ -1,7 +1,8 @@
 欢迎访问我们是您畅玩体育娱乐的理想选择。无论您是喜爱足球、篮球、还是其他体育项目，我们提供丰富多彩的游戏和线上投注服务，让您尽情享受激动人心的体育世界。
 
 ## 网址入口
-- [https://gitlab.com/venghk/ayxac/-/tree/main/](https://gitlab.com/venghk/ayxac/-/tree/main/)
+- [https://gitlab.com/-/snippets/3709212](https://gitlab.com/-/snippets/3709212)
+- [https://gitlab.com/venghk/ayxac](https://gitlab.com/venghk/ayxac)
 - [https://gitlab.com/venghk](https://gitlab.com/venghk)
 - [https://muckrack.com/pengkim/bio](https://muckrack.com/pengkim/bio)
 - [https://uxfol.io/111b081c](https://uxfol.io/111b081c)
